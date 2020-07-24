@@ -1,4 +1,4 @@
-![](https://giffiles.alphacoders.com/820/820.gif)
+![](https://i.ytimg.com/vi/l_h2VEaTBBI/maxresdefault.jpg)
 
 <!--
 **lpaphp/lpaphp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
